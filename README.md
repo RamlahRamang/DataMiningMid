@@ -1,0 +1,2 @@
+# DataMiningMid
+alhamdulillah
